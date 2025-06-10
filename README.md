@@ -8,6 +8,7 @@ while I draw or do other things‧₊˚</i></b><br>
   ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆<br>
   <b><i>୨୧⁀➴ ♡Any ship interactions are purely for fun and aren't serious!</i><br>
   <i>୨୧⁀➴ ♡If you mirrorship, kindly do not speak with me about it!</i><br>
+  <i>୨୧⁀➴ ♡Younger than 15 C+H/INT is ok, but no social app sharing pls!</i><br>
   <i>୨୧⁀➴ ♡I temp-hide freely so don't take it personally!</i></b><br>
 ⋆˚｡⋆♡⋆˚｡⋆<br>
 <b>    🗦꒰thanks for reading!꒱🗧</b><br>
